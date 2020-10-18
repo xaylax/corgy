@@ -12,6 +12,6 @@ if you know me (and my github profile picture), you know I'm a corgi fanatic! An
 4. spending more time on this so I can listen to as much Panic! At the Disco while I code as possible
 5. practicing and expanding my knowledge in the 2 main languages that I'm in progress of becoming proficient in 
 
-Documentation coming soon 😩😩😩
+Documentation coming soon 😩😩😩 
 
 _______________________________________________________________________________________________________________________________________________________________________________
